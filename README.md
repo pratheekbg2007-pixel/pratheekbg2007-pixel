@@ -36,7 +36,7 @@
 ---
 
 ### 📫 Connect with Me
-- GitHub: https://github.com/your-username
+-LinkedIN : https://linkedin.com/in/prathik-bg-9550ba373/
 
 ---
 
